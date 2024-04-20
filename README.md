@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @mochidochi
 - 👀 I’m interested in . lumine/j maybe..
 - 🌱 I’m currently learning . nothing..
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on ..idk .
+- 📫 How to reach me .idk..
 - 😄 Pronouns: .she/her..
 - ⚡ Fun fact: .im dumb..
 
